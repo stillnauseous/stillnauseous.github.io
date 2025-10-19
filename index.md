@@ -1,5 +1,7 @@
-I'm a simple guy. I like to fart and also fart.
+# Shart: A Haiku
 
-Maybe one day I'll be farting.
+Faith falters, softly
 
-And someone will hear.
+Warm regret blooms on my thigh
+
+So this is living
