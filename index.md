@@ -1,5 +1,5 @@
-Unskilled in Jekyll/HTML, so here's what you get.
+I'm a simple guy. I like to fart and also fart.
 
-Maybe say a some things about yourself.
+Maybe one day I'll be farting.
 
-Or maybe what you plan to blog about.
+And someone will hear.
