@@ -1,4 +1,4 @@
-Here you can say lots of fun things about your site.
+Unskilled in Jekyll/HTML, so here's what you get.
 
 Maybe say a some things about yourself.
 
