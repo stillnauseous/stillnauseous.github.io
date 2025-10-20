@@ -1,4 +1,4 @@
-### Sharting on the Montreal Metro
+### Sharting on an A330
 
 Faith falters, softly
 
