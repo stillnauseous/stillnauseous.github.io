@@ -1,4 +1,4 @@
-### I sharted on an A330
+### Sharted on an A330
 
 Faith falters, softly
 
